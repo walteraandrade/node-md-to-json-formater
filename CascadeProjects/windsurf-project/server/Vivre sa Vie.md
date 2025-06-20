@@ -1,0 +1,24 @@
+# ⭐⭐⭐⭐⭐
+
+	primeira vez que vi, 02 de junho de 2012
+
+Masterpiece. This movie does not have a single defect.
+
+As we all know, the step that can develop a film to become Cinema is it's approximation with the proper aesthetic forms. The reason for this movie perfectionism is that [[Jean-Luc Godard]] surely knows what art is all about and he used his knowledge to develop a solid and intelligent film.
+
+_"Vivre sa Vie"_ is about Nanna. Nanna is about to become a prostitute. She does not knows it yet.
+
+	_"Lend yourself to others; give yourself to yourself."  
+Montaigne_
+
+The movie starts with some frames showing Nanna's face from different angles. It starts almost completely dark, this is Nanna's right face, it's almost like a shadow; there is a cut and the face is completely shown. Another cut and the face is filmed from the left. The light allows you to see it properly. Metaphoric Sequence. It says: the movie you're about to see is about the transition between darkness to light of this female face. As it was not enough, in the first of the twelve acts, Paul reads a text: "The chicken has an inside and an outside. Remove the outside and you find the inside. Remove the inside, and you find the soul." In French (like in English, in Portuguese, I think even in German), the word "poule" means something like "chick", but less offensive. The text is both a metaphor and a prelude to the film.
+
+The whole film is a movement, a transition from Nanna's ignorance about herself to her self knowledge as a prostitute. She starts talking about being an actress in theater, maybe in Cinema. She wants 2000 francs. Why? Apparently, she needs to pay the rent. She tries to borrow from the people she knows but she fails. She tries to steal, she's caught. She'll become a prostitute. However, no single detail of this movie implies that the reason for her to make this decision is that she needs money, although this can be seen as _one_ reason.
+
+She isn't sad or depressive when says: _"I am responsible. I turn my head, I am responsible. I lift my hand, I am responsible."_ For her, prostitution is freedom. This movie can't be interpreted as a social study of reason to become a prostitute or the life of a prostitute. This kind of statement can turn this movie into superficiality. Godard's isn't about facts, Godard is about ideas. The prostitution is a reason to discuss the "to be lend" as a proof of freedom. How possibly could one lend itself more than a prostitute? Prostitution is not the fact, it is the symbol.
+
+Hence those scenes with subtitles instead of speaches. The movie was made to work between two different languages in the first place. There is a story that is told and there is a story that is shown. The good things aren't told. The talk between Nanna and Luigi, with whom she seems to be in love, is mute. However, the facts, the hugs, the promises are there to be seen. The whole movie can be divided in two parts, a pictorial and a discursive, and they aren't always telling the same thing even though the story is the same. The whole question here is the confrontation of the concept of truth and it's application to life.
+
+However, it must be said since I'm defending this movie so passionately, that the last scene is a little bit different than people use to understand. At least I think.
+
+In the previous act, Luigi reads a passage of one of [[Allan Poe]]'s text. It's about an artist trying hard to paint a portrait of his own wife. He tried so hard that he ends up so concentrated in the portrait and forget his wife. He tried so hard that he reaches perfection and in the very same moment he realizes that she's dead. Obvious reference to [[Oscar Wilde]]'s _"The Picture of Dorian Gray"_. The whole point of this mix of stories (in addition we could say that marvelous scene with [[Brice Parain]] in the café), is to show that the only way to give perfection to the language is by killing life. The problem is that the actress, Ana Karina, was Godard's wife at that time and the movie is a obvious reference to his own life. However, despites that [[feminist]] speech that he's making a analogy between a dead whore and his wife is awful. The point is not if she's a whore or not, is she as a woman. After all, acting is about lending yourself as well. For me, this ending (and the whole film) may be understood if you are aware of this two truths: (1) Since Karina (the actress) is still alive, the artist (Godard) wasn't perfect in he's attempt to reach a perfect form of language; (2) hence, no form of language will never - ever - reach perfectionism, otherwise, to live would represent absolutely nothing - death.

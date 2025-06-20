@@ -1,0 +1,18 @@
+# ⭐⭐⭐⭐⭐
+
+	primeira vez que vi, 07 de junho de 2012
+
+[[Charlie Kauffman]]
+Synecdoche, a literary-critical term used to describe a metaphor translated to some kind of icon of it. For example, when we say: "I'm looking for a Bud" meaning you're looking for any beer. _Synecdoche, New York_ means world in the same proportion Bud means beer. The film appeals to metalinguistic to create and transfer an artistic and yet realistic world.
+
+[[Philip Seymour Hoffman]] is indeed one of the best alive actors. His role here is incredibly hard and he manages to work with it brilliantly. He's Caden Cotard, a famous and talented theater director who wakes up one day and realizes he's ill. His illness is no other than his own discontent with the lack of Life in life, the impossibility of describe Life in the mess we live (it's interesting to note that the word "mess" is repeated 10 times in the movie, not by chance). When his family starts to collapse, Cotard receives a "genius" grant to create a great and truthful piece of art. Confused by the _mess_ of his loneliness since his wife left him and took his child, confused by so any different diagnostics (so many kinds of doctors, no single one can tell what's wrong with him - this is also a synecdoche), confused by hims feelings with the pretty and available woman Hazel (Samantha Morton), in short: confused by the lack of logic in life, Cotard decides to create a piece of art so powerful that everyone that looks to it will be able to feel what is life. Instead, the one who does that is Kaufman.
+
+Synecdoche, New York is not only the city he was living in, even though the city is also a synecdoche of all cities and it's own futility and falsehood. Synecdoche, New York is also the city Caden will need to create in his attempt to reach pure reality through art. It's a representation of his world in real time with actors playing the roles of the people around him - even playing himself, hims assistant, his wife...
+
+The _mess_ grows desperate when Caden starts to represent pure reality. He, his actors, his friends, girlfriends and assistants starts to loose their own personalities when Caden wildly tries to represent them in his own play. Individuality is reduced to _mess_ the whole play, Caden's world ans _Synecdoche, New York_ is Chaos.
+
+Suddenly, a harsh cut in time and 6 years has passed. Now 20 years. Caden's world keeps collapsing while he pursuits his goal. His first daughter is a completely tattooed whore showing in Berlim, his second daughter is nothing more than a noise here and there. Harsh cut again, his first daughter is dying in front of his eyes, asking him to apologize because she thinks he left her to have anal sex with some Eric, and when he does that (even knowing it's not truth) because he thinks it'll make her die more peacefully, she says she does not forgive him and die anyway.
+
+In resume, the cinematography is gorgeous. It breaks with the ideas from Lars von Trier in the famous Dogma 95 about the color and filming reality. Kaufman manages to make you feel like every single even here is possible even tough the whole story is unreal. Also, the soundtrack is great and specially meaningful.
+
+Kaufman again strikes hard in humans' mind managing to create a complex, well-structured and beautiful piece of art - without recreate life through art, instead working on art as simply art. The greatest message I found here takes the movie to the same theme than Godard's _Vivre sa Vie_, even though both directors are very original: to recreate life trough art perfectly is, in fact, to kill life.

@@ -1,0 +1,23 @@
+# ⭐⭐⭐⭐⭐
+
+	  review da segunda vez que vi, em 21 de julho de 2012	
+
+The original concept of the word [[Persona]], in Latin, means mask. The theatrical theory adopted this concept to represent the role of some actor in a certain play. [[ Ingmar Bergman]] used this expression to entitle his movie about the absurdity of be. The central theme in <i>Persona</i> seems to be exactly the impossibility to reduce any personality into a simple sentence started with: "I am..."
+
+Elisabet Vogler is a well-succeed actress that found herself paralyzed when she was playing [[Electra]]. [[Sophocles]]' <i>Electra</i> is famous to serve as a basis (or, if you prefer, an example) to the psychoanalytical theory about the female's personality, in the very same way [[Oedipus King]] works for men. Elisabeth suddenly realizes that she does not knows anymore where is the border between her and the character she's playing, nor even what is, in fact, her personality. Thus she decides not to talk anymore; to avoid lying. Taken as ill, she goes to a certain hospital where sister Alma works.
+
+Simplicity is the word that could describe Alma ("alma" in Portuguese and Spanish means "soul") in the very same moment she finds Elisabeth. When she says "I'm going to talk a little bit about me" she can only wander about the theme and suddenly asks if Elisabet wants to eat. The female doctor decides that Elisabeth isn't ill, but she needs to rest. Thus, she offers her summer house for Alma and Elisabet hoping they'll be able to talk and rest.
+
+However, Elisabet maintains her vow of silence and Alma starts to talk about herself all the time to fulfill the silence. Alma starts fresh and optimistic, saying she thinks about getting marry and have children, thinking about work hard to help people, "that's what matters, right?", she says. But Elisabet is only listening peacefully, her eyes show friendship and compreehensiveness. While Alma is talking and drinking, seems like for the very first time in her life she is also thinking about her condition, her attitudes and thoughts, her desire and fears. Alma tells an unexpected story in which she betrayals her husband in a certain orgy with a younger boy in the beach, and the simple things about her life are starting to become complicated.
+
+The greatest achievement of this film that could easily and fairly be considered "experimental" in it's time: it's  narrative, divided into two supplementary parts, by the dialogues, specifically Alma's speech, and Elisabet's reactions, depicted by the superb mise-en-scéne and by the symbolic images in the screen. Elisabeth's attempt to stop lying in her vow of silence is obviously stupid, she keeps on lying with her face, with her gesture and with her thoughts. Whilst she's hearing Alma's outflow of guilt, she's having fun analyzing her suffering.
+
+The Persona is now built by the disruption of both personalities. Bergman uses Ullman's and Andersson's similarities to create amazing frames in which they are almost fusing with each other. The real personality, the solid structure of characteristics that define our acts is pure fake. As Alma says, we're changing all the time. We are capable of everything, everything can happen, it only depends of the situation. When furious, Alma pretends she's going to throw a pot full of boiling water, Elisabeth screams "Don't do that!", breaking her vow to preserve herself.
+
+There is a lot of talking about the first images in the screen. I don't think they're really indispensable. As far as I understand, they're there to simulate the kind of film that is about to begin.
+
+<i>Persona</i> is probably Sven Nikvist's greatest work ever. The images are not only incredibly meaningful and poetic but also beautiful.
+
+The soundtrack almost doesn't exist. A background music usually has the power to raise the effect of a certain scene, or even change it. Most part of this film, the music is off or it is just a weird mix of percussive noises, like Bergman is trying to preserve the visual impact without "power-ups". 
+
+<i>Persona</i> is a masterpiece because it, being symbolically, manages to be incredibly raw. <i>Persona</i> is also mask about a movie. It goes really inside you to destroy every solid concept about your personality turning it into a fluid and slippery mix of ideas. The movie isn't about these women, it is about you. When Alma slaps Elisabet, Elisabet is out of the frame. Alma's slap are aiming to you. Face it.

@@ -1,0 +1,15 @@
+# ⭐⭐⭐⭐⭐
+ 
+	 review da primeira vez que vi, 15 de julho de 2012
+
+_"Let everything that's been planned come true. Let them believe. And let them have a laugh at their passions. Because all they call passions actually is not some emotional energy, but just the friction between their souls and the outside world"_
+
+Although none of Tarkovsky's films can be completely understood apart from their technical aspects, _Stalker_ can be appreciated within two main frames, (1) the mysticism, and the key to understand it, in my opinion, is in the text above and it's development through dialogues; (2) the transient essence of life and the immutability of time, explained by the camera movements and the superb mise-en-scéne.
+
+Tarkovsky himself said there is no explanation for what "The Zone" is. Of course there is not. If translated to any other noun, "The Zone" loses, automatically, 99,99% of its own signification. It wasn't there to _mean_ anything, it was there to sustain a certain environment in which people's desire, fears and complexes are pushed to the limit. You can say that "The Zone" is a church in which The Stalker is a priest and you can be right; in the same proportion another people may defend that "The Zone" in some political concept in which The Stalker is the leader and also be right. Seems like Tarkovsky was trying to pass the idea that beliefs are as essential as everything in life: it isn't essential but it may turn into some worthy way to live. There is no right or wrong about believing nor being an incredulous as long as you find your own place to feel useful. 
+
+Technically it's all explained specially by the misé-en-scene mixed with this precisely calculated camera movements. An example of what I'm saying and that can be seen around all this movie is the first shot in the Stalker's room. The camera first captures (after the credits) a opened door, and you can see there is a bed; than, close-up, there is a tray with some objects placed upon it; slow movement to the right showing the couple and their little daughter sleeping in the bed; a train is passing and you can hear the sound of it and you can see the ground shaking, the camera slowly makes the way back to the tray and the objects are now changed; close-off and you are able to see the bed in another angle, the Stalker is rising, he dresses and walks out of the room; the camera assumes the same initial position; however, Stalker isn't there anymore neither are the objects in the same way they were before. The misé-en-scéne around this whole movie imitates the basic structure of this sequence and the irreversibility of time is exposed. Also, in The Zone you can't go back from the same path you came in.
+
+Tarkovsky's usual utilization of the colors are also wisely used here. The sephia tone is used in the commonness of reality whilst the colored scenes are exclusivity of the mysticism inside The Zone.
+
+_Stalker_ isn't easy, and it isn't breakable in many pieces to be understood. [[Tarkovsky]] wisely placed his ideas to be perceived instinctively or maybe poetically. Still, it's irresistible movie. "The Room" of inspiration for any filmmaker.
